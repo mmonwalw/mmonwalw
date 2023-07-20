@@ -1,0 +1,7 @@
+MEMBRES DU GROUPE 21 DU PROJET SDD
+WABEDO M'Monwal (GE)
+YOVO-ESSE Yaovi Ferdinand (IS)
+ADABRAH Kokou Maxime Jérémie (GC)
+ABI T. Paul (IA)
+ATCHOU Daniel (GE)
+KOULEFIONOU MESSAN Folly (IS)
